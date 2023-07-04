@@ -1,0 +1,1 @@
+# HDSC_Managing-the-Quality-Metric-of-Global-Ecological-Footprint-Stage-C-
